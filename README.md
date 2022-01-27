@@ -8,7 +8,7 @@ Espero que goste!
 
 📖 | **Índice:**
 
-- Banoffe Pie
+- Banoffe
 - Brownie
 - Pavê de Abacaxi
 - Torta de Limão
